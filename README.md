@@ -1,3 +1,7 @@
-![image](https://github.com/user-attachments/assets/99f19c64-bfe7-4290-8ad6-a4e3fb64d9ad)
+<div align="center"> ‎‎‎ ‎<a href="https://aeryth.straw.page/"> strawpg </a>   ‎ ‎‎‎ ‎‎ ‎‎  ‎ ‎‎‎ ‎‎ ‎‎     ‎ ‎‎‎‎ ‎‎‎ ‎‎ ‎‎ ‎‎    ‎ ‎‎‎‎‎  ‎‎ ‎‎‎ ‎‎  ‎‎   ‎ ‎‎‎‎‎  ‎‎  ‎ ‎‎‎‎‎  ‎‎ ‎‎ ‎‎‎ ‎‎ ‎‎   ‎ 
+ </div> 
 
-c + h friendly !
+
+<p align="center"> <img src="https://pbs.twimg.com/media/GqB5maSaoAAXDyw?format=jpg&name=large" width=300> </p>
+<p align="center"> 
+ 
